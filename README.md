@@ -1,1 +1,1 @@
-Monkey Mart will take you to explore mysterious tombs deep underground. You will be transformed into a tomb to explore the mysterious underground.
+Welcome to Monkey Mart, where you transform from a rookie store manager to a retail tycoon! In this addictive online game, you'll start with a tiny shop and grow it into a bustling supermarket empire.
